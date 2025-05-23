@@ -12,6 +12,9 @@
 #### 🔥 Teamkerbell 바로가기 🔥
 #### https://d3lxmx9ope3ebd.cloudfront.net/
 
+#### 🔥 Teamkerbell 영상보기 🔥
+#### [https://d3lxmx9ope3ebd.cloudfront.net/](https://youtu.be/OoSLh1iCVV0?si=tM1e3MIq0bv6cqG4)
+
 <br>
 
 
